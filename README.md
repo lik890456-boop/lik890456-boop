@@ -1,7 +1,5 @@
 # Keyi Li
 
-**槛内人。**
-
 Economics is still under cultivation.  
 For now, it is the lens through which I make sense of the world.
 
