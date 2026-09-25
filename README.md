@@ -1,24 +1,24 @@
 # Keyi Li
 
-Economics is still under cultivation.  
-For now, it is the lens through which I make sense of the world.
+Economics is still 修ing.  
+For the time being, it is the pair of spectacles through which I look at the world.
 
-I mostly watch ordinary people — no grand reason, except that I am one of them.  
-Desire, choice, self-deception: messy in detail, strangely repetitive in structure.
+I am mostly interested in ordinary people, for the unremarkable reason that I am one of them.
 
-I look at others partly to look back at myself.  
-Sometimes it clarifies what is right or wrong; sometimes it merely reveals that I am not doing much better.
+Desire, choice, self-deception — all rather messy up close, and suspiciously repetitive from a distance.
 
-I read a fair amount of old books and classics.  
-The books have aged well. Whether I have is less clear.
+I watch people partly to understand them, and partly because other people make inconvenient mirrors.  
+Sometimes I learn something about right and wrong. More often, I discover that I am not much better myself.
 
-I also write fiction and scatter landmines everywhere.  
-Whether the holes ever get filled is largely a matter of fate.
+I read a great many old books.  
+The books are classics. Whether the reader has improved accordingly remains unverified.
 
-I have understood a few principles in theory.  
-Whether I have managed to live by them is another question.
+I also write fiction, mostly by planting landmines everywhere.  
+Whether the holes eventually get filled is, at present, a matter of fate.
 
-# Keyi Li
+I have understood a few principles on paper.  
+Putting them into practice is a separate research agenda.
+
 
 **槛内人。**
 
